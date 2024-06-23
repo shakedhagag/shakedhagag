@@ -1,3 +1,3 @@
-- ❤️‍🔥 Frontend software developer @OpenWeb
-- 📫 Reach me at shakedc200@gmail.com
+- ❤️‍🔥 Software Engineer @OpenWeb
+- 📫 Contact: shakedc200@gmail.com
 
